@@ -1,1 +1,1 @@
-# leisure-suit-larry-2
+# Leisure Suit Larry 2
